@@ -1,1 +1,2 @@
 # waffles_RECIPE
+# This a-file will show a-you how to a-make a-waffle. This a-recipe is made, not a-from scratch. You a-will need a-premade batter because I a-can't cook-a. First-a you take-a the a-batter, and place it in the waffle machine a-according to the place you a-want to make the waffles. Sizes may vary. Let it be for five minutes, take it out of a-the machine, and voil-a! There you have it, a common recipe for waffles because I cannot-a cook. 
